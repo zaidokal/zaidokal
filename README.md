@@ -29,3 +29,4 @@
 ## 📫 Let’s Connect
 - 💼 [LinkedIn](https://www.linkedin.com/in/zaidokal/)  
 - 🌟 [Portfolio](https://zaidokal.com)
+- 👉 [Visit My Website](https://www.zaidokal.com)  
